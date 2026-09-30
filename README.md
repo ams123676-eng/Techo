@@ -1,2 +1,0 @@
-# Techo
-Techno healthy 
